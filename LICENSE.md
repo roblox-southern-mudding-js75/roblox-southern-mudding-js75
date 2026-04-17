@@ -1,4 +1,4 @@
-
+roblox blue lock rivals new Scripts: teleport & no clip is the best roblox blue lock rivals Script, featuring teleport and no clip. Safe and powerful
 
 
 ---
